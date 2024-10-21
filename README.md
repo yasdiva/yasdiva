@@ -9,5 +9,5 @@
  • Amo minecraft 
 
 
-!{[](https://tenor.com/t1PJuq78Siv.gif)
+![](https://tenor.com/t1PJuq78Siv.gif)
 
