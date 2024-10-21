@@ -1,12 +1,13 @@
 ## Hello divoss!!! 
 
- •Amo figurinhas de macacos 🐒
+ • Amo figurinhas de macacos 🐒
  
- •Amo lasanha
+ • Amo lasanha 
  
- •Sou profissional em roblox 
+ • Sou profissional em roblox 
 
- •Amo minecraft 
+ • Amo minecraft 
 
- https://tenor.com/t1PJuq78Siv.gif
+
+!{[](https://tenor.com/t1PJuq78Siv.gif)
 
